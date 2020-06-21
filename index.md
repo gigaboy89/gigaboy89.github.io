@@ -13,3 +13,7 @@ The Fall of Reach was conceived after Nylund had discussed the possibility of a 
 	* outstanding tactical thinking
 * self-doubts but with taking advantage of it
 * brave
+
+### Quotes:
+The Master Chief by open space boarding an enemy space ship and answering Admirals question about what he is doing:
+"Finishing this Fight" 
