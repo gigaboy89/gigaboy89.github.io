@@ -17,3 +17,6 @@ The Fall of Reach was conceived after Nylund had discussed the possibility of a 
 ### Quotes:
 The Master Chief by open space boarding an enemy space ship and answering Admirals question about what he is doing:
 > Finishing this Fight
+
+
+<img src="https://pngimg.com/uploads/doom/doom_PNG40.png"/>
